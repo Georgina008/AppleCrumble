@@ -20,6 +20,6 @@ Pour the cake batter into the prepared pan.
 
 9. Keep in a covered container for up to 4 days.
 
-__*How to Make the Crumb Topping*__
+**How to Make the Crumb Topping**
 
 - In a medium bowl, whisk together sugars, cinnamon, salt and flour. Add melted butter and fluff with fork until mixtures creates crumbs. Set aside.
